@@ -1,4 +1,7 @@
 # Projects
-python projects bas itna hi.
-lol
+python projects hai bas itna hi.
+lol(Lots of Laanat)🤣
 hahahhaha
+
+
+
